@@ -14,3 +14,6 @@ Telegram channel link https://t.me/EvilHooked
 DO NOT BUY ANYTHING FROM THIS INDIAN SCAMMER.
 
 Don’t help him escape the shitty house he lives in back in his home country.
+
+
+keywords: evilginx, RProxy LAB, phishlets
